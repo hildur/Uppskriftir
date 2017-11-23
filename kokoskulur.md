@@ -10,7 +10,7 @@ Magn: 25-30 st
 * 3 msk kallt sterkt kaffi (1)
 * 3 dl  haframjöl  - 90 g
 
-(1) gott er að skifta hluta af kaffinu út fyrir rjóma, sérstaklega fyrir börn
+(1) gott er að skipta hluta af kaffinu út fyrir rjóma, sérstaklega fyrir börn, en svo má líka bara notast við vatn.
 
 Blandið öllu saman nema haframjölinu þangað til að þetta verðu jafnlita. (fínt að gera i hrærivel).
 
