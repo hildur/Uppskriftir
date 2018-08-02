@@ -3,17 +3,17 @@ Kokóskúlur
 
 Magn: 25-30 st
 
-* 100 g smjör (lint)
-* 1 dl  sykur  - 90 g
-* 1 msk vaniljusykur  - 7 g
-* 3 msk kakó  - 21 g
-* 3 msk kallt sterkt kaffi (1)
-* 3 dl  haframjöl  - 90 g
+* 100 g Smjör (lint)
+* 90 g Sykur [1 dl]
+* 7 g Vaniljusykur [1 msk]
+* 21 g Kakó [3 msk]
+* 45 ml Kallt sterkt kaffi [3 msk] _(1)_
+* 90 g Haframjöl [3 dl]
 
-_(1) gott er að skipta hluta af kaffinu út fyrir rjóma, sérstaklega fyrir börn, en svo má líka bara notast við vatn._
+_(1) gott er að skipta hluta af kaffinu út fyrir rjóma/mjólk, sérstaklega fyrir börn, en svo má líka bara notast við vatn._
 
 Blandið öllu saman nema haframjölinu þangað til að þetta verðu jafnlita. (fínt að gera i hrærivel).
 
 Blandið haframjölinu samanvið.
 
-Rullið deginu i kulur og svo upp úr kókosmjöli, perlusykri, kökuskrauti eða hvaðeina.
+Rullið deginu i kúlur og svo upp úr kókosmjöli, perlusykri, kökuskrauti eða hvaðeina.
